@@ -1,0 +1,1 @@
+Suxbat uchun savol
